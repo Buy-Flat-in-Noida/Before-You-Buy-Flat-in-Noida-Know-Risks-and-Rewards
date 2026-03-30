@@ -163,8 +163,12 @@ But at the same time, infrastructure growth, rising end-user demand, and better 
 
 The opportunity is real. But so is the need to make an informed decision.
 
-ACE PARKWAY – RERA REG NO. UPRERAPRJ4514 | www.up-rera.in/projects 
-ACE STARLIT – RERA REG NO. UPRERAPRJ677294 | www.up-rera.in/projects 
-ACE 153 - RERA REG NO. UPRERAPRJ423807 | www.up-rera.in/projects 
-ACE DIVINO – RERA REG NO. UPRERAPRJ6734 | www.up-rera.in/projects 
-ACE HAN'EI – RERA REG NO. UPRERAPRJ677887/10/2024 | www.up-rera.in/projects 
+ACE PARKWAY – RERA REG NO. UPRERAPRJ4514  
+
+ACE STARLIT – RERA REG NO. UPRERAPRJ677294 
+
+ACE 153 - RERA REG NO. UPRERAPRJ423807 
+
+ACE DIVINO – RERA REG NO. UPRERAPRJ6734 
+
+ACE HAN'EI – RERA REG NO. UPRERAPRJ677887/10/2024 
