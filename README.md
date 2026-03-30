@@ -162,7 +162,3 @@ Yes, the market has risks. Past delays and speculative cycles have left their ma
 But at the same time, infrastructure growth, rising end-user demand, and better regulation are reshaping the city into a strong real estate destination.
 
 The opportunity is real. But so is the need to make an informed decision.
-
----
-
-## Press Release/GP
